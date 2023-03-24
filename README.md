@@ -21,7 +21,7 @@ codeforces :::  <a href="https://codeforces.com/profile/Abdullah_Mahi"> **Abdull
 
 <p> 
 cont. me:<br/>
-<a href="https://sites.google.com/view/abdullah-al-mobin/home"> **Md. Abdullah Al Mobin** </a><br/>
+<a href="https://sites.google.com/view/abdullah-al-mobin/home"> Md. Abdullah Al Mobin </a><br/>
 Tangail, Bangladesh<br/><br/>
 mail    :  mahi.odyssey@gmail.com <br/>
 FB      :  https://www.facebook.com/mobin1abd <br/>

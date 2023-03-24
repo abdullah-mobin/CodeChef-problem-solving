@@ -24,7 +24,7 @@ cont. me:<br/>
 <a href="https://sites.google.com/view/abdullah-al-mobin/home"> Md. Abdullah Al Mobin </a><br/>
 Tangail, Bangladesh<br/><br/>
 mail    :  mahi.odyssey@gmail.com <br/>
-FB      :  https://www.facebook.com/mobin1abd <br/>
+FB      :  https://www.facebook.com/mahi.odyssey <br/>
 GitHub  :  https://github.com/abdullah-mobin
 <br/> <br/>
 Have a nice day 💙💙💙
